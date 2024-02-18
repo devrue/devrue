@@ -1,4 +1,4 @@
 - Currently working on Rise
 - Discord: @mmmfghhh.
-- Pronouns: she/her
+- Pronouns: 
 
